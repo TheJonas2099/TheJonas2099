@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do TheJonas2099 😁
+## Bem-vindo(a) ao perfil do Jonas 😁
 
  <div>
    <a href="https://github.com/TheJonas2099">
